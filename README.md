@@ -1,0 +1,5 @@
+- Hi, I’m Jay Ahir (@Jay-Ahir-0709)
+- I’m interested in Web Designing and Designing Interfaces.
+- I’m currently learning New UI and UX Concepts.
+- reach me through mail at: ahirjay0709@gmail.com
+- My Linked In: https://www.linkedin.com/in/ahirjay0709/
